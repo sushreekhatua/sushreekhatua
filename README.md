@@ -1,5 +1,5 @@
 SUSHREE SADHANA KHATUA
-Address: Askims Kyrkåsväg 14, 43640 Göteborg 
+Stockholm Sweden
 Phone number: +46790519706 
 Email address: sushree.sadhana@gmail.com 
 -------------------------------------------------------------
