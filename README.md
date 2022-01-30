@@ -19,7 +19,9 @@ Skills
 
 
 ### Programming Languages  
-• Python 
+• Python
+• C#
+
 
 ### Databases  
 • Oracle SQL
